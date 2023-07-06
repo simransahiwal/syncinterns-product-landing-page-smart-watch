@@ -1,0 +1,1 @@
+# syncinterns-product-landing-page-smart-watch
